@@ -1,1 +1,0 @@
-# situacao.problema_25.11.2022
